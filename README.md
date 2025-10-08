@@ -12,5 +12,6 @@
 
 -low social battery at times, if i want to be left alone please listen
 
+-femboysfemboysfemboysfemboysfemboysfemboysfemboysfemboysfemboysfemboysfemboys i love femboysfemboysfemboys so much i love them femboys pleade femboysfemboys.❤️❤️❤️❤️❤️🥵
 
 -huge seildirectory nerd 
