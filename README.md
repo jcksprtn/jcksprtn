@@ -10,5 +10,7 @@
 
 -usually offtab, usually only on pt if im at school, hanging out with oomfs, or in a regi event
 
+-low social battery at times, if i want to be left alone please listen
+
 
 -huge seildirectory nerd 
