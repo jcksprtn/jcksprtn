@@ -1,5 +1,3 @@
+<img width="1658" height="1241" alt="Image" src="https://github.com/user-attachments/assets/a311f99c-6b20-44e1-84f7-dee6019f1efb" />
 
-
-![github](https://github.com/user-attachments/assets/4208cdf4-7369-4339-8ee6-535d3688a72e)
-
-
+[rentry](https://rentry.co/life-steal-smp)
